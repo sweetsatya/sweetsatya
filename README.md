@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sweetsatya.
-- 👀 I’m interested in creating beautiful music.
-- 🌱 I’m currently learning composition and music production.
+- 👀 I’m interested in creating beautiful songs!
+- 🌱 I’m currently working on my website and music production.
 - 💞️ I’m looking to collaborate on producing music.
 - 📫 You can reach me at satyasings@protonmail.com
 
